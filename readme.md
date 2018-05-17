@@ -302,6 +302,7 @@ Pois é, eu também tava, até que decidi ver onde os nerdões estavam. Achei al
 - [POTILIVRE ](https://telegram.me/joinchat/AvMomgAeNcVoFFGFggjDJw)
 - [PROGRAMEIROS](https://t.me/joinchat/AAAAAD-xLVoEzIPEWBM2Fw)
 - [TECNOLOGIA DA INFORMAÇÃO](https://telegram.me/joinchat/CBcyYj32K4fEDI1BVBGagg )
+- [Vídeo Libre](https://t.me/videolibre )
 - [API Builders BR](https://t.me/apiBuilders)
 - [ALGORITMOS](https://t.me/algoritmos)
 
